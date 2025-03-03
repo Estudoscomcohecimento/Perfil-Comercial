@@ -12,6 +12,6 @@ Meu nome é Rebeca
 
 
 ![image](https://github.com/user-attachments/assets/fb05189b-29e7-4a26-ae09-67de943dc1cb)
-)
+
 
 foi bom em quanto durou 
